@@ -58,3 +58,20 @@ Strategies for alignment include regular communication, shared goals, integrated
 3 Sources
 Key Takeaway
 While marketing and sales have distinct roles, they are interdependent. Marketing attracts and educates potential customers, while sales converts them into loyal clients. Businesses that align these functions effectively can maximize revenue, improve customer experience, and maintain a competitive edge in the marke
+Sales & Economic Highlights
+Eurozone slowdown: Industrial production fell −1.4% month-on-month, the steepest drop since April 2025. Germany was hit hardest with a −2.9% decline, signaling weaker demand for capital goods.
+
+India’s trade deficit widened to $34.68B in January, driven by surging gold and silver imports. This marks one of the largest gaps in recent months.
+
+Commodities: Gold and silver prices dipped as the U.S. dollar strengthened. Trading volumes were thin due to U.S. and Chinese market holidays, leaving the outlook fragile.
+
+Pharma sales boom: Eli Lilly reported strong global sales of its diabetes drug Mounjaro and announced plans to make India a hub for its $1B supply chain investment.
+
+📈 Marketing & Brand Strategy
+AI-driven campaigns: Major brands leveraged the Super Bowl to showcase AI innovations, shaping consumer perception of tech companies.
+
+Agency restructuring: Global marketing giant WPP is reworking its structure to stay competitive in a tech-driven market.
+
+E-commerce surge: Online retailers capitalized on seasonal demand, turning it into significant performance growth.
+
+Event-based marketing: The 2026 calendar highlights over 60 major cultural and commercial events, giving marketers opportunities to align campaigns with consumer behavior.
